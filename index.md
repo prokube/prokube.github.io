@@ -1,2 +1,2 @@
-### [Latest](https://prokube.github.io/2023/07/25)
-> The fourth day of Isabel's Hiatus Updates. I try to write a video essay and fail terribly.
+### [Latest](https://prokube.github.io/2023/07/26)
+> The fifth day of Isabel's Hiatus Updates. I thought too hard about a coincidence that doesn't really matter.
