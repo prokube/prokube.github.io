@@ -1,2 +1,2 @@
-### [Latest](https://prokube.github.io/2023/07/26)
-> The fifth day of Isabel's Hiatus Updates. I thought too hard about a coincidence that doesn't really matter.
+### [Latest](https://prokube.github.io/2023/07/27)
+> The sixth day of Isabel's Hiatus Updates. I have entered Act 2.
