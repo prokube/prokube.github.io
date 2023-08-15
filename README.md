@@ -1,2 +1,2 @@
 # prokube.github.io
-watch me go insane daily here :)
+who knows what will happen next? :)
