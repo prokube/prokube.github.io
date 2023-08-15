@@ -1,2 +1,2 @@
-### [Latest](https://prokube.github.io/2023/07/27)
-> The sixth day of Isabel's Hiatus Updates. I have entered Act 2.
+### [Latest](https://prokube.github.io/2023/day)
+> There's nothing here...
